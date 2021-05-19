@@ -1,0 +1,1 @@
+This is the Chocochip Muffin. It is a chocolate muffin with chocohips and is eaten as a dessert. It is usually served hot.
